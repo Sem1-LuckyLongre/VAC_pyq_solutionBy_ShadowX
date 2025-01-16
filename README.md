@@ -6,60 +6,62 @@
 
 #### (i) The Idea of Social Justice in *"Panch Parmeshwar"*  
 **Answer:**  
-Premchand’s story *“Panch Parmeshwar”* shows the importance of fairness and justice over personal relationships. The story is about two friends, Jumman and Algu, who act as Panchayat leaders in cases involving each other.  
+Premchand’s story *“Panch Parmeshwar”* explores the core principle of social justice, which prioritizes fairness, truth, and impartiality over personal biases. The story revolves around two friends, Jumman and Algu, who serve as Panchayat leaders in disputes involving each other. Despite their personal relationship, they uphold justice above all.  
 
-Even though they are close friends, they give fair decisions based on truth instead of favoring their friendship. This reflects how the Panchayat system, as described by Premchand, ensures justice and fairness for everyone. The story teaches that a Panchayat leader should always stand for what is right to keep peace and harmony in the community.  
+When Jumman presides over a case where Algu is the accused, and vice versa, both deliver decisions that favor the truth rather than their friendship. This showcases how the Panchayat system, as depicted by Premchand, embodies the ideal of social justice by transcending personal relationships and ensuring unbiased verdicts for community welfare. The story emphasizes the moral responsibility of a Panchayat leader to uphold the values of equity and integrity, highlighting the relevance of community-led justice systems in maintaining harmony and order in society.  
 
 **Hinglish Explanation:**  
-Premchand ki kahani *“Panch Parmeshwar”* mein nyay aur samajik insaaf ka mahatva dikhaya gaya hai. Jumman aur Algu apne rishte aur dosti ke bawjood sach aur nyay ka saath dete hain. Yeh kahani sikhati hai ki Panchayat ka uddeshya samaj mein shanti aur vishwas banaye rakhna hai.  
+Premchand ki kahani *“Panch Parmeshwar”* mein nyay aur samajik insaaf ka mahatva dikhaya gaya hai. Kahani ke kirdar Jumman aur Algu, apne rishte aur dosti ke bawjood, Panchayat mein hamesha sachai aur nyay ke saath khade hote hain. Yeh kahani sikhati hai ki Panchayat ka mool uddeshya samaj mein vishwas aur samanvay banaye rakhna hai.  
 
 ---
 
 #### (ii) Mindfulness  
 **Answer:**  
-Mindfulness means being fully aware of the present moment without judging your thoughts or feelings. It helps people feel calmer, reduce stress, and improve focus. You can practice mindfulness through meditation, deep breathing, or paying attention to small daily activities like eating or walking.  
+Mindfulness is the art of being fully present in the moment, with complete awareness and non-judgmental acceptance of one’s thoughts, emotions, and surroundings. It promotes a deeper connection with oneself and the world, enhancing emotional well-being and reducing stress. Mindfulness can be cultivated through practices like meditation, deep breathing, and mindful observation of daily activities, such as eating, walking, or listening.  
 
-For example, starting your day with 10 minutes of meditation can make you feel more focused and positive. Mindfulness encourages people to live in the moment, stay aware of their feelings, and handle challenges calmly.  
+For instance, beginning the day with ten minutes of meditation can improve focus and emotional regulation, while practicing gratitude fosters a positive outlook on life. Mindfulness encourages individuals to detach from distractions, improve self-awareness, and respond thoughtfully to challenges. It is widely recognized for its benefits in improving concentration, mental health, and interpersonal relationships.  
 
 **Hinglish Explanation:**  
-Mindfulness ka matlab hai apne vartaman mein poori jagrukta ke saath rehna. Meditation aur deep breathing jaise aasan tareeqe se stress kam hota hai aur vyakti ko adhik focused banata hai.  
+Mindfulness ka arth hai apne vartaman mein poori jagrukta aur swikriti ke saath rehna. Ismein bina kisi judgement ke apne vicharon aur aas-paas ke halat ko apnana shamil hai. Meditation, deep breathing aur gratitude practice mindfulness ke mahatvapurn ang hain jo stress kam karte hain aur vyakti ko adhik sukhad aur santulit banate hain.  
 
 ---
 
 ### Question 2: What is your idea of right action in any given situation? Give an example to illustrate your answer. (5 marks)
 
 **Answer:**  
-Right action means making decisions that are ethical and benefit others. It involves being honest, kind, and thinking about the greater good, even if it is difficult.  
+Right action refers to decisions and behaviors guided by ethics, empathy, and consideration for the greater good. It requires critical thinking, selflessness, and moral courage, especially when personal stakes are involved.  
 
-For example, if you see an injured stray animal, helping it and taking it for medical care is a right action. Similarly, refusing to help a friend cheat in an exam is also the right thing to do. It shows honesty and fairness, even if it temporarily upsets your friend. Right actions help build trust and make society better.  
+For instance, if someone encounters an injured stray animal on the road, stopping to help and ensuring it receives medical attention is a right action. Such an act reflects compassion and a sense of responsibility toward others. Similarly, refusing to assist a friend in cheating during an exam is another example of right action. While it may temporarily harm the friendship, it upholds values like honesty, integrity, and fairness, which are fundamental to building trust and a just society.  
 
 **Hinglish Explanation:**  
-Right action ka matlab hai ethical aur doosron ke hit mein faisla lena. Agar ek dost aapse cheating karne ko kehta hai aur aap mana karte ho, toh yeh sahi kadam hoga kyunki yeh imandari aur nyay ko badhava deta hai.  
+Right action ka matlab hai ethical aur samaj ke hit mein faisle lena. Maan lijiye, ek dost aapse exam mein cheating karne ko kehta hai; uski madad karne ke bajay usse mana karna sahi kadam hoga. Yeh imandari aur nyay ko badhava deta hai, jo ek vyakti aur samaj ke liye aavashyak hai.  
 
 ---
 
 ### Question 3: Elaborate any one individual/group activity that you did in the class and that had a deep impact on you. Give reasons to substantiate your answer. (5 marks)
 
 **Answer:**  
-One memorable group activity I participated in was the “Clean Campus Drive.” We aimed to promote cleanliness and make students and teachers more aware of protecting the environment.  
+One impactful group activity I participated in was a “Clean Campus Drive” conducted during an Ethics and Environment session. Our goal was to promote cleanliness and raise awareness about environmental sustainability among students and faculty.  
 
-During the drive, we collected waste, planted saplings, and talked to others about separating and disposing of trash properly. Initially, some classmates were not interested, but our teamwork inspired them to join.  
+During the drive, we faced challenges like initial disinterest from classmates and resistance to adopting sustainable habits. However, by organizing ourselves into small teams, we divided tasks such as collecting waste, planting saplings, and conducting awareness campaigns on waste segregation and disposal.  
 
-This activity taught me the importance of teamwork and how small efforts can bring big changes. It felt good to help the environment and see others become more aware of cleanliness.  
+This activity deeply impacted me as it taught me the value of teamwork, perseverance, and responsibility. It also reinforced the importance of collective effort in driving social change. The satisfaction of contributing to the environment and seeing positive changes in attitudes toward cleanliness made the experience meaningful.  
 
 **Hinglish Explanation:**  
-Ek Ethics session ke dauran hamne “Clean Campus Drive” ka ayojan kiya. Hamne safai aur kachra alag karne ke bare mein awareness badhayi aur teamwork ke mahatva ko samjha. Yeh activity mujhe samajik yogdan ka mahatva sikhati hai.  
+Ek Ethics aur Environment session ke dauran hamne “Clean Campus Drive” ka ayojan kiya. Hamara lakshya safai aur paryavaran sanrakshan ke prati jagrukta badhana tha. Hamne kachra ikattha karne, paudhe lagane aur proper waste disposal ke liye awareness campaigns kiye. Is activity ne mujhe samuhik kaam aur samajik badlav mein yogdan dene ka mahatva samjhaya.  
 
 ---
 
 ### Question 4: Which shared value do you think has the most relevance in the present times? Discuss. (5 marks)
 
 **Answer:**  
-Empathy, or understanding others’ feelings, is very important today. In times of social inequality and global problems, empathy helps us connect with others and work together for solutions.  
+Empathy, the ability to understand and share the feelings of others, holds paramount relevance in today’s world. In an era marked by social inequalities, conflicts, and global crises, empathy serves as the foundation for building inclusive, harmonious, and cooperative societies.  
 
-For example, during COVID-19, people helped each other by donating food, money, or just supporting their neighbors. Empathy makes it possible to reduce prejudice, solve conflicts, and build a better society. It teaches us to respect others and work for the common good.  
+For example, during the COVID-19 pandemic, acts of kindness such as helping neighbors, donating essentials, and supporting frontline workers highlighted the power of empathy in overcoming adversity. Empathy enables individuals to address societal challenges like poverty, mental health issues, and discrimination with compassion and collaboration.  
+
+By fostering mutual respect and understanding, empathy encourages people to look beyond their differences and work together for the common good. Its role in promoting peace, reducing prejudice, and addressing global issues underscores its importance as a shared value in contemporary times.  
 
 **Hinglish Explanation:**  
-Aaj ke samay mein empathy yaani doosron ke dukh-sukh samajhne ki shamta bohot zaroori hai. COVID-19 ke dauran logon ka ek doosre ki madad karna aur samaj mein ekta banana iski importance ko dikhata hai.  
+Aaj ke samay mein empathy yaani doosron ke dukh-sukh ko samajhne aur mehsoos karne ki shamta ek atyant mahatvapurn value hai. COVID-19 ke dauran, logo ka ek dusre ki madad karna aur samaj ke prati yogdan karna empathy ka ek udaharan tha. Yeh samaj mein mel-jol, samanta aur samvedna ka sanrachak hai. Empathy ke bina vyakti aur samaj ka vikas asambhav hai.  
 
----  
+--- 
